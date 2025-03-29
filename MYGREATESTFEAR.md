@@ -7,7 +7,7 @@ Undoubtly my **greatest** passion, and I plan to use it as a path to university 
 
 The thought of *failing* them motivates me to push harder every day. It’s not just about personal success, it’s about making their ***sacrifices*** worth it. No matter the obstacles, I will do **everything** in my power to fulfill this promise.
 
-#All They Have Done for Me - Appreciation
+# All They Have Done for Me - Appreciation
 
 Here is a **short** list on just **some** of the things my family has provided me with:
 - Unconditional **Love** and **Support**
